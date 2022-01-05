@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JoanaLuzeiro
-- 👀 I’m interested in recruit IT talent
+- 👀 I’m interested in recruit IT talent for Netherlands and Portugal.
 - 🌱 I’m currently learning about tech
 - 💞️ I’m looking to collaborate on finding you a better new job!
 - 📫 How to reach me joana@agap2.nl
